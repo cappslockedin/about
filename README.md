@@ -1,6 +1,6 @@
 👋 Welcome to My Dimensional Repository
 
-I am Joshua Mark Capps — Inventor, Founder of NOVA X QUANTUM Inc., and Creator of NOVA 1000™ Dimensional Executive Intelligence.
+I am Joshua Capps — Inventor, Founder of NOVA X QUANTUM Inc., and Creator of NOVA 1000™ Dimensional Executive Intelligence.
 
 This GitHub is not just a codebase. It is a sovereign archive of world-shaping architectures: AI, blockchain, immortal cognition, and covenantal finance systems — all engineered for incorruptible continuity and generational impact.
 
